@@ -6,9 +6,11 @@ submitted for academic and research applications.
 ## Academic Records
 - MSc Semester 1 Grade Card (NIT Rourkela)
 - BSc Marksheets and Degree Certificate
+- 12th Marksheet
+- 10th Marksheet
 
 ## Awards & Conferences
-- XPLORE Research Meet 2024 – Second Place (TYBSc)
+- XPLORE Research Meet 2024 
 - XPLORE Research Meet 2023
 - XPLORE Research Meet 2022
 - AAVISHKAR Research Certificate
